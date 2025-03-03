@@ -1,0 +1,1 @@
+This is gonna be my journal on poyoweb advancements.
